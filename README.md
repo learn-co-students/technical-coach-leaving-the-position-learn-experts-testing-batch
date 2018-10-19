@@ -6,8 +6,8 @@ If you are looking to leave the position, there are a few things to please keep 
 
 ## Two Weeks Notice
 
-Like any other professional position, please give your Technical Coach Lead and Technical Coach Manager two weeks notice so we can plan accordingly with the schedule and ensure there are no gaps in coverage.
+Like any other professional position, please give your Technical Coach Lead and Faculty Manager two weeks notice so we can plan accordingly with the schedule and ensure there are no gaps in coverage.
 
 ## References
 
-Unfortunately, the Technical Coach Manager is unable to act as a professional reference because this is contract work and Technical Coaches are not employees of Flatiron. The Technical Coach Manager is able to confirm that you've worked in this role and the responsibilities that this role entails.
+Unfortunately, the Faculty Manager is unable to act as a professional reference because this is contract work and Technical Coaches are not employees of Flatiron. The Faculty Manager is able to confirm that you've worked in this role and the responsibilities that this role entails.
